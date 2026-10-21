@@ -1,0 +1,1 @@
+# Lapeshop Store Assets
